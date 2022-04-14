@@ -1,1 +1,1 @@
-![Pewarisan 1](https://user-images.githubusercontent.com/101534076/163419965-c53be77e-d54e-4821-85bd-ecc43d88864d.jpg)
+![Pewarisan 4](https://user-images.githubusercontent.com/101534076/163420601-5fee2ba6-d433-47f5-bb99-318d0e9c6ce8.jpg)
